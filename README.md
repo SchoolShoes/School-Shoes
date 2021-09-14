@@ -1,1 +1,2 @@
 # School-Shoes
+Everflex <a href="https://everflex.com.au/">School Shoes</a> and work styles merge fashion and function effortlessly. EverFlex brings you support, flexibility, and high-shine of our school shoes. EverFlex low prices make kids’ school shoes an attractive option! Workers trust our slip resistant range to keep them steady in any environment. From long days in the classroom to action-packed shifts in the workplace, our enduring Everflex shoes will bring you the best comfort!
